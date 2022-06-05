@@ -1,6 +1,8 @@
-created my own github
-i am an achiever
-i am a developer
-i am a teacher
+created my own github acct.
+welcome to Lilyvilla.
+i am an achiever.
+i am a developer.
+i am a teacher.
 congratulations to me
-welcome to lilyvilla online class
+time to explore my world.
+get inspired.
